@@ -19,4 +19,15 @@ Benovalant depotism
 allegary of cave
 3 type of men 
 
+# john rawls theory of justice
+Veil of Ignorance
+Original Position 
+Difference principle 
+Maximin principle - maximize the minimun 
+
+
+# Democracy
+
+# Equality
+
 # 
