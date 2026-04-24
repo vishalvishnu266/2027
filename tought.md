@@ -3,7 +3,10 @@ Try to test your skill
 Dont ignore the prelims , without prelims there is no mains
 Try to read the news paper every day
 Aptitude is also equally important , for that remember the imp formulas and concepts
-
+donot do too work , try to be smart
+dont copy and paste
+type every thing - to reduce garbage
+periodically purge 
 
 # Prelims
 * polity
